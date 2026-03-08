@@ -1,4 +1,4 @@
-# Saucy Dog – シンデレラボーイ
+# Saucy Dog – シンデレラボーイ - Cinderella Boy
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
